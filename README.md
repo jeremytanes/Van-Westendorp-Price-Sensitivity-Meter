@@ -1,0 +1,1 @@
+# Van-Westendorp-Price-Sensitivity-Meter
